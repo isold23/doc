@@ -8,7 +8,9 @@ http://zhaosheng.zhongxi.cn/zsxx/14327.html
 
 http://www.cwu.edu.cn/hygjjyx/bxgl/bxgk/78e04d02806143d4abde9e4b72c7c5f7.htm
 
-* 
+* 北京城市学院
+
+http://www.bcu.edu.cn/xbbyxb/
 
 # 广播电视编导
 
