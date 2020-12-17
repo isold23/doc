@@ -14,7 +14,7 @@ http://www.bcu.edu.cn/xbbyxb/
 
 * 北京体育大学
 
-
+https://zs.bsu.edu.cn/detail/403
 
 # 广播电视编导
 
