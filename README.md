@@ -12,6 +12,10 @@ http://www.cwu.edu.cn/hygjjyx/bxgl/bxgk/78e04d02806143d4abde9e4b72c7c5f7.htm
 
 http://www.bcu.edu.cn/xbbyxb/
 
+* 北京体育大学
+
+
+
 # 广播电视编导
 
 * 北京电影学院
