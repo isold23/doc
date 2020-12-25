@@ -22,3 +22,7 @@ https://zs.bsu.edu.cn/detail/403
 
 http://www.bfa.edu.cn/stcm/photos/
 
+
+# 公派留学
+
+http://apply.csc.edu.cn/csc/main/person/login/index.jsf
