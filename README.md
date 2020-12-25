@@ -16,7 +16,7 @@ http://www.bcu.edu.cn/xbbyxb/
 
 https://zs.bsu.edu.cn/detail/403
 
-# 广播电视编导
+# 编导
 
 * 北京电影学院
 
