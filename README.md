@@ -22,6 +22,10 @@ https://zs.bsu.edu.cn/detail/403
 
 http://www.bfa.edu.cn/stcm/photos/
 
+* 中央戏剧学院
+
+http://qncdn.zhongxi.cn/2020zsjz.pdf
+
 
 # 公派留学
 
